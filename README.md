@@ -45,6 +45,8 @@
 - **PikPak**  
   https://mypikpak.com/s/VOm5X_6UjP3JI8dNQ7U59A0do2
 
+- **iCloud**
+  https://www.icloud.com/photos/#/icloudlinks/07bPf5WA4HYMEE9rnkn1W1Izg/
 
 ## 影片內常見疑問解答
 
